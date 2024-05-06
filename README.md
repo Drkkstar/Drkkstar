@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to be cooler
 - 💞️ I’m looking to collaborate on being cool
 - 📫 How to reach me coolguy@verycool.coolguy
-- 😄 Pronouns: ...
+- 😄 Pronouns: cool/cooler/coolest
 - ⚡ Fun fact: am cool
 
 <!---
